@@ -1,8 +1,10 @@
 # school-inquiry-python
 
-### Don't forget to support me!
+![foto-gif](https://gokhankutbay.com/assets/img/works/gorsel5.png)
 
-[www.gokhankutbay.ml](https://www.gokhankutbay.ml/)
+### Please share to support me. Thank you in advance. Use it on good days.
+
+[www.gokhankutbay.com](https://www.gokhankutbay.com/)
 
 ### Follow me;
 
